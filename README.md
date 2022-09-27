@@ -1,3 +1,3 @@
-# FUTURABLE 
+# Futurable
 
-(Not) just another sustainability blog
+(Not) just another sustainability blog. 
